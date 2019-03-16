@@ -106,7 +106,7 @@ El break even nos permite saber si estamos en cero.
 
 **A la hora de expandir**:
 * Debes priorizar el social proof en el nuevo mercado, las relaciones y referencias.
-* Gana presencia en ek imaginario colectivo del sistema.
+* Gana presencia en el imaginario colectivo del sistema.
 
 **¿Cómo lo puedo hacer?**
 * Dar charlas, brindar entrevistas, organizar eventos pequeños.
